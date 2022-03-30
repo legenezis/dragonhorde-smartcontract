@@ -8,4 +8,4 @@ Approval of gold requests depends on whether or not the dragon is in a good mood
 
 Do take a look!
 
-~ Maria Elizabeth Mutia
+~ Liz Mutia
